@@ -13,4 +13,4 @@ Use my affiliate link to purchase your [Amazon Echo Dot](http://amzn.to/2tobAZN)
 Using my affiliate link is like a small "tip" for me to show your appreciation :)
 
 ### Thanks!!
-Justin
+[Justin](http://justinrains.com)
